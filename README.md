@@ -1,1 +1,1 @@
-# juro9484.github.io
+# Repositories for Activities 9.1 and 9.2
